@@ -11,13 +11,13 @@
 2.  **Get `SESSION ID` BY [`PAIRING CODE`](https://ayomikunv2-session.onrender.com) 
 
 
-8. **You can visit Bot whatsapp channel [`BY CLICKING HERE`]https://chat.whatsapp.com/Kwl7NBTfrKaHJZVq2GehJY?mode=ac_t
+8. **You can visit Bot whatsapp channel [`BY CLICKING HERE`] https://chat.whatsapp.com/Kwl7NBTfrKaHJZVq2GehJY?mode=ac_t
 9. <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a
 ## ```Connect With Me```<img src="https://github.com/0xAbdulKhalid/0xAbdulKhalid/raw/main/assets/mdImages/handshake.gif" width ="80"></h1> 
 <br>
 <p align="center">
-<a href="https://wa.me/2348162895550"><img src="https://img.shields.io/badge/Contact David-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
-* [🧑‍💻 Follow Gojou-MD Whatsapp Channel🧑‍💻](https://whatsapp.com/channel/)
+<a href="https://wa.me/2348162895550"><img src="https://img.shields.io/badge/Contact Ayomikun-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+* [🧑‍💻 Follow Ayomikun-MD Whatsapp Channel🧑‍💻](https://whatsapp.com/channel/)
 
   * [🧑‍💻 Join Ayomikun-Md Group 🧑‍💻](https://t.me/+wg4roMAo-q5mNzk0)
   
